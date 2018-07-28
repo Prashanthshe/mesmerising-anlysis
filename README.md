@@ -1,1 +1,1 @@
-# mesmerising-anlysis
+# mesmerising-analysis
